@@ -1,7 +1,7 @@
 ![Work at Social Deal](./header.jpg)
 
 ## Social Deal
-Social Deal is a dynamic and rapidly growing platform with awesome deals to enjoy a delicious dinner, adventurous outings, relaxing spa days, and much more. With nearly 300 colleagues, we are a young and open company with an informal 'we' atmosphere. You'll feel at home in no time and will be warmly welcomed into our Social Deal Family with open arms. We believe in enjoying every day and celebrating our successes together.
+Social Deal is a dynamic and rapidly growing platform with fantastic deals for enjoying delicious dinners, adventurous outings, relaxing spa days, and much more. With nearly 300 colleagues, we are a young and open company with an informal and casual atmosphere. You'll feel at home in no time and will be warmly welcomed into our Social Deal Family with open arms. We believe in enjoying every day and celebrating our successes together.
 
 [View all open job vacancies](https://werk.socialdeal.nl)
 
